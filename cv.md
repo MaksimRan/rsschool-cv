@@ -1,4 +1,4 @@
-### <span style="color:orange">Randautsou Maksim</span>
+### Randautsou Maksim
 
 
 ## Contacts:
